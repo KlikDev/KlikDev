@@ -1,5 +1,3 @@
 # Landing
-Lorem ipsum
-coba dulu
-branch test
+i want to get shirt
 `Jangan Coba coba`
