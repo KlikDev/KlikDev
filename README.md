@@ -1,4 +1,4 @@
 # Landing
-i want to get shirt
+i want to get love
 `Jangan Coba coba`
 I Love Everybody
